@@ -4,3 +4,4 @@ Ideation Phase
 Ideation in Progress
 Idea 1 rejected
 2nd Idea in Ideation
+Thala For a Reason
