@@ -7,4 +7,4 @@ Idea 1 rejected
 Working on it
 Exams
 Will work on it after exams
-Exams till 28
+Exams 13 - 28
