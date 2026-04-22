@@ -7,4 +7,4 @@ Idea 1 rejected
 Working on it
 Exams
 Will work on it after exams
-Exams 13 - 28 April
+Exams 13th - 28th April
