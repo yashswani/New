@@ -7,4 +7,5 @@ Idea 1 rejected
 Working on it
 Exams
 Will work on it after exams
-Exams Date: 13th - 28th April
+Exams From: 13th April
+Exams Till: 28th April
