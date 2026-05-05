@@ -1,1 +1,1 @@
-Ideation Going On
+Idea 1: Blog App
